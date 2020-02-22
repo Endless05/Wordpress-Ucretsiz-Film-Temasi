@@ -2,3 +2,6 @@ Merhaba arkadaşlar bir müşteriye yaptığımız film indirme temasını müş
 
 Tema görüntüsü 1: https://yadi.sk/i/yrSI_1PzUCsnww
 Tema görüntüsü 2: https://yadi.sk/i/lPQxBTLpesEumw
+
+
+https://www.kurumsaltasarim.com.tr
